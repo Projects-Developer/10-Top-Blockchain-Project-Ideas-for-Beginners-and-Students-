@@ -1,4 +1,4 @@
-# 10-Top-Blockchain-Project-Ideas-for-Beginners-and-Students-
+# 10 Top Blockchain Project Ideas for Beginners and Students
 10 Top Blockchain Project Ideas For Beginners And Students With Code, Document And Vidoe Tutroial.
 
 ![TOP Blockchain Project ](https://github.com/user-attachments/assets/64166a38-90b6-4648-90e9-31bb0bf4f712)
